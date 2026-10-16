@@ -1,0 +1,2 @@
+# premium-embed-resin-001-resin-embedding-specimen-pre
+Stop guessing and start perfecting your resin casts. Your first perfectly preserved specimen is one organized workflow away.  This Notion template transforms your chaotic resin bench into a streamlined studio. No more lost notes or forgotten cure times – get consistent, professional-grade results every time with a system designed by a fellow resin
